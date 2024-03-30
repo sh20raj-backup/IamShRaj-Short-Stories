@@ -88,6 +88,45 @@ Suddenly the girl came he liked like a gold digger with a fake smile
 
 
 
+## Part 3
+
+
+
+Showing the previous story of how Sh loosed deep
+
+She died in an Accident&#x20;
+
+* His scooty slipped in between of the road. (Sh and deep was on scooty)
+* A truck was coming to them Sh tried to save her he started running madly towards the truck to stop it like a superman (very less distance)
+* Before Hitting to the truck the truck was hit by another truck from side ( both saved )
+* Another vehicle coming towards them to crash them, In very less time Sh covered deep to save her ( Sh don't wanted to loose deep at any cost ) His friends saved them from the bike
+* But the attacks were planned by his enemies made from his business
+* Now, He decided to leave all of his businesses and shift to something online with hiding his identity to safeguard his family and deep.
+* He tried to start the scooty blood was coming from his leg, hit by the scooty
+* Taken the scooty to his home
+* Argument by deep Sh tried her to calm down
+* But she wanted to go from here and his life she taken her scooty and tried to go, she wasn't feeling safe with him
+* Sh stopped and said at least take my car it's safe keep the car if you don't want to talk to me again
+* Just be safe, Main bhi tumhe mana lunga jab mere pas security ke uchit suvidha ho jaegi to
+* I just want to see you happy
+* She started to go in the car and all things was in control but due to her impulsiveness car got accident in front of him and he seen her dying ( She died in her lap's top)
+
+Now, Sh gathered the list of his all enemies talked to them and tried to find all the real culprits and killed them all. Crosses on the photos of them on the wall all planned murder, Sh friends supported him always.
+
+* Now, we see the last photo in the list was of Sh, because Sh also understand him as the guilty of her accident.
+
+Now, we see the last seen the Sh seeing deep's photo on the table of Shades company CEO chair. He takes out his gun from the drawer, keeps it on her head, Said I love you deep and I am sorry for everything deep, Hum phir milenge (Apa fer Milange) and meanwhile Deep's soul was stoping him to do this. So, Many Deep's faded should in the dark room Stopping him. A girl in the company who liked him, came in the office ran to stop him, shouted out loud.
+
+But
+
+he pressed the the gun, fired 🔥
+
+
+
+
+
+
+
 
 
 
