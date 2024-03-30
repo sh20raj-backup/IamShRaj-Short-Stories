@@ -1,4 +1,4 @@
 # Table of contents
 
-* [Page](README.md)
+* [Summary](README.md)
 * [❤️ Apa Milange Jarur We](apa-milange-jarur-we.md)
