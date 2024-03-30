@@ -60,9 +60,61 @@ After First day of Job, Going Home
 
 &#x20;
 
+## Part 2
+
+* Next day going to office&#x20;
+* Sitting on the boss table
+* He has purchased the whole company ( In reality he is a big social media giant owner )
+* Calls that Security Guard Manager and shows him the fired paper and fires it
+* Manager felt very uncomfortable and useless
+* Manager going outside
+* Sh stopped smiled and hand shaken with manager
 
 
 
+Suddenly the girl came he liked like a gold digger with a fake smile
+
+* She came at the gate to talk to him because he is her new boss
+* Sh wanted to make her his personal assistant
+* Sh become nervous and shy expecting something bad but bad not happened
+* She Started talking, Sh eagerly wanted to listen her her voice after years
+* She Faded Away [->](https://www.youtube.com/watch?v=t1WEwB1JNLo\&list=RDKq3uO1nAIXE\&index=3) Like a Magic
+* \[Twist] She Never Existed in his office.
+* That was all in his mind
+* Scene of his 5 Years of work medal at the _**Shades**_ company ( He was the CEO of the company from last 5 Years )
+* He has loosed her may be, She had Existed sometime
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+{% embed url="https://www.youtube.com/watch?v=1pAB0wrQTLE&list=RDKq3uO1nAIXE&index=2" %}
 
 
 
